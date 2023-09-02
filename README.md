@@ -1,1 +1,0 @@
-# smartinternz-ai-ml
